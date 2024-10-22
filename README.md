@@ -1,6 +1,4 @@
 # Hi, Tlatonf !
 
-A final-year student.
-
-
+A final-year student who is currently unemployed.
 
